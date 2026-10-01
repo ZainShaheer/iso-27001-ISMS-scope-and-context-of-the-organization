@@ -1,0 +1,1 @@
+# iso-27001-ISMS-scope-and-context-of-the-organization
